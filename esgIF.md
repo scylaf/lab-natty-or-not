@@ -1,4 +1,4 @@
-# A Jornada da IA: Um Passeio pelo Futuro 🌌
+# Bancando o Futuro: ESG no Seu Banco, de Forma Simples e Descomplicada!🌌
 
 ## 📒 Descrição
 Este e-book de 5 páginas explora o impacto revolucionário das IAs Generativas no nosso dia a dia e como elas moldarão o futuro.
